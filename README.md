@@ -1,0 +1,2 @@
+# thousandhandsgreen
+Thousand Hands Green is a platform of service exchange through which an individual is provided with an opportunity to kick-start their own small business, by promoting their credentials and to earn extra money. Through this platform there is an ongoing potential to reach an abundance of customers searching for experienced professionals in a specific field who will assist them in completing specific jobs. Website: https://www.thousandhandsgreen.vn/
